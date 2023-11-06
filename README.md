@@ -1,2 +1,2 @@
 # Goj04life.github.io-reading-notes-
-Gojo 
+How Gojo would describe a growth mindset 
